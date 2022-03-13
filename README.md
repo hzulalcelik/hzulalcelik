@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @hzulalcelik
+- 👀 I’m interested in taking pictures, creating social media contents and editing videos.
+- 🌱 I’m currently learning some photoshop, editing and computer graphics programmes.
+- 📫 my mail adress is zulalcelik24@gmail.com
